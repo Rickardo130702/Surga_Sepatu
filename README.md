@@ -1,3 +1,5 @@
+Karolus Rickardo Lewo Keda 22.02.0769
+
 SURGA SEPATU
 
 Deskripsi
